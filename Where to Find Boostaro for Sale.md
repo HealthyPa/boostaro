@@ -217,5 +217,5 @@ With its 180-day money-back guarantee and proven results, Boostaro is a
 worthwhile investment for anyone looking to improve their intimate
 health and confidence.
 
-Don't wait---order Boostaro from the official website today and start
-your journey toward better vitality and intimate performance!
+<a href="https://boostaro.org" target="_blank">Don't wait---order Boostaro from the official website today and start
+your journey toward better vitality and intimate performance!</a>
