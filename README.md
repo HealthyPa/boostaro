@@ -1,2 +1,1 @@
-# boostaro
-Boostaro is a natural male enhancement supplement.
+<h1>Enhance Stamina, Strength & Confidence!</h1>
