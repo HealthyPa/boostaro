@@ -12,6 +12,8 @@ This article will explain everything you need to know about Boostaro,
 including its benefits, ingredients, pricing, and why buying directly
 from the official website is crucial.
 
+<a href="https://boostaro.net/" target="_blank">Find out more today!</a>
+
 **What Is Boostaro?**
 
 Boostaro is a premium dietary supplement created to support men's
@@ -219,3 +221,5 @@ health and confidence.
 
 Don't wait---order Boostaro from the official website today and start
 your journey toward better vitality and intimate performance!
+
+<a href="https://boostaro.net/" target="_blank">Find out more today!</a>
