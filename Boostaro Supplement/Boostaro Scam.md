@@ -8,6 +8,8 @@ allegations, explain why Boostaro is not a scam when purchased from the
 official website, and how to avoid falling into the trap of counterfeit
 products.
 
+<a href="https://boostaro.net/" target="_blank">Find out more today!</a>
+
 **What is Boostaro?**
 
 Boostaro is a male enhancement supplement designed to improve intimate
@@ -198,3 +200,5 @@ genuine benefits of Boostaro, helping you embrace a more confident and
 fulfilling intimate life. Don\'t let fake products ruin your
 experience---choose wisely and trust only the official website for your
 purchase.
+
+<a href="https://boostaro.net/" target="_blank">Find out more today!</a>
