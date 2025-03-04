@@ -87,6 +87,8 @@ Boostaro is priced affordably on its official website:
 
 The 180-day money-back guarantee allows you to try it risk-free. If you’re unhappy with the results, you can get a full refund, no questions asked.
 
+<img src="C:\Users\binay\Downloads\Sinu\COUPLE PICS\89.jpg">
+
 **Final Thoughts**
 
 Boostaro is a powerful supplement that supports men’s health and vitality. However, it’s important to buy it only from the official website. Products sold on Amazon or other third-party sites are likely fake and could harm your health.
