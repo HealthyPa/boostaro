@@ -131,7 +131,7 @@ If you’re ready to boost your confidence, energy, and intimate performance, Bo
 
 Remember, Boostaro isn’t just about improving performance—it’s about enhancing your overall health and vitality. With its natural ingredients and proven benefits, it’s no wonder so many people are raving about it.
 
-So what are you waiting for? Head over to the [official Boostaro website]() and start your journey to a more confident, energized you. 💪
+So what are you waiting for? Head over to the Boostaro official website and start your journey to a more confident, energized you. 💪
 
 Ready to experience the benefits of Boostaro? Don’t wait—visit the **Boostaro website** today and take advantage of their exclusive offers. Click the link below to get started!
 
